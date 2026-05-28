@@ -6,5 +6,6 @@
 
 look at our professor dawg were gonna fail
 
-<img width="386" height="87" alt="Screenshot_201" src="https://github.com/user-attachments/assets/428dc9e3-64d2-4748-997b-aff2b8987181" />
+<img width="363" height="343" alt="imageedit_1_4077292632" src="https://github.com/user-attachments/assets/d8a6de48-a2d3-4307-977b-210db2d24a17" />
+
 
